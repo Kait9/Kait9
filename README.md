@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kait9
 - 👀 I’m interested in movies knitting 
-- 🌱 I’m currently learning life 
+- 🌱 I’m currently learning life lessons 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Morrell.kaitlyn@gmail.com 
 
